@@ -36,11 +36,89 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A shorte recapitulacion or abrigement of Erasmus Enchiridion brefely comprehendinge the summe and co
+
 #####Body#####
+Epheſ. vi.BE ſtronge in the lorde, ād in the power of his myght. And put on the armoure of God, tha
+    _ The ſumme of the prologe.
+
+    _ The firſt Chapter.
+
+    _ The .ij. Chapter,
+
+    _ The .iij. Chapter,
+
+    _ The .iiii. Chapter.
+
+    _ The .v. Chapter.
+
+    _ The .vi. Chapter.
+
+    _ The .vij. Chapter.
+
+    _ The .viii. Chapter.
+
+    _ The .ix. Chapter.
+
+    _ •he .x. hapter.
+
+    _ The .xi. Chapter.
+
+    _ The .xij. Chapter
+
+    _ The .xiij. Chapter.
+
+    _ The .xiiij. Chapter.
+
+    _ The .xv. Chapter.
+
+    _ The .xvi. Chapter.
+
+    _ The .xviij. Chapter.
+
+    _ The .xviij. Chapter
+
+    _ The .xix. Chapter
+
+    _ The .xx. Chapter.
+
+    _ The .xxi. Chapter.
+
+    _ The .xxij. Chaptrr.
+
+    _ The .xxiij. Chapter.
+
+    _ The .xxiiij. Chapter.
+
+    _ The .xxv. Chapter
+
+    _ The .xxvi. Chapter
+
+    _ The .xxvij. Chapter
+
+    _ The .xxviii. Chapter.
+
+    _ The .xxix. Chapter.
+
+    _ The .xxx. Chapter.
+
+    _ The .xxxi. Chapter.
+
+    _ The .xxxij. Chapter.
+
+    _ The .xxxiiij. Chapter
+
+    _ The .xxxiiij. Chapter
+
+    _ The .xxxv. Chapter.
+
+    _ The .xxxvi. Chapter
+
+    _ The .xxxvij. Chaptrr.
+
+    _ The .xxxviii. Chapter.
 
 #####Back#####
-A shorte recapitulacion or abrigement of Erasmus Enchiridion brefely comprehendinge the summe and co
+¶ Imprinted at Auſborch by Adam AnonimusIn the moneth of May. Anno. 1545.
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
